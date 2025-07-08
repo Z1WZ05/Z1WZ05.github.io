@@ -1,16 +1,6 @@
-
-- Outstanding Graduate Award (CUMT), 2025.
-
-- National Scholarship for Graduate Student, 2024.
-
-- First-Prize Scholarship (CUMT), 2024.
-
-- First-Prize Scholarship (CUMT), 2023.
-
-- Freshman Scholarship (CUMT), 2022.
-
-- Outstanding Graduation Project Award (Jiangsu Province), 2022.
-
-- First-Prize Enterprise Scholarship (CUMT), 2020.
-
-- First-Prize Scholarship (CUMT), 2019.
+- Third Prize in 4C (Hunan Province), 2025.
+- Second Prize in 4C (CSU), 2025.
+- Third Prize in lanqiao cup, 2025.
+- Finalist in Mathematical Contest In Modeling, 2025.
+- YangGuang Foreign Language Scholarship, 2024.
+- Second-Prize Scholarship (CSU), 2024.
