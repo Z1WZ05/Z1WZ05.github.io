@@ -2,5 +2,6 @@
 - Second Prize in 4C (CSU), 2025.
 - Third Prize in lanqiao cup, 2025.
 - Finalist in Mathematical Contest In Modeling, 2025.
+- Outstanding student of Central South University, 2024.
 - YangGuang Foreign Language Scholarship, 2024.
 - Second-Prize Scholarship (CSU), 2024.
