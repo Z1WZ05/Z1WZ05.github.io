@@ -1,6 +1,6 @@
 
 
-[![senli1073](https://img.shields.io/badge/senli1073-github-blue?logo=github)](https://github.com/senli1073)
+[![Z1WZ05](https://img.shields.io/badge/Z1WZ-github-blue?logo=github)](https://github.com/Z1WZ05)
 
 I am currently an undergraduate student majoring in Computer Science in Central South University.
 
